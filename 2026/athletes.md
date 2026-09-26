@@ -1,0 +1,6 @@
+- 28 Indian National Records broken 36 times
+- Progress
+- Sport + Education
+- PhD student
+- 3 km = 8.31 seconds
+- Practice 2 times per day
