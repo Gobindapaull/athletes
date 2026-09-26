@@ -4,3 +4,7 @@
 - PhD student
 - 3 km = 8.31 seconds
 - Practice 2 times per day
+- So many thoughts
+- Goals that seem impossible
+- Running with goosebumps
+- Practice a lot
